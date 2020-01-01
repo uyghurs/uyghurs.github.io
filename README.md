@@ -1,1 +1,0 @@
-# uyghurs.github.io
